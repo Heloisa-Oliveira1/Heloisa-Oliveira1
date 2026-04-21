@@ -1,6 +1,6 @@
 ## Olá 👋, Meu nome é Heloisa Oliveira
 
-🚀 **Estudante de Engenharia de Software pela Univassouras**  
+🚀 **Estudante de Engenharia de Software**  
 🇧🇷 Brasil
 ---
 
